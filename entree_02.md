@@ -12,8 +12,8 @@ Expliquer pourquoi vous avez choisi ce lien.
 L'oeuvre *Animal instinct* m'adresse beacoup, car c'est une illustration visuelle des espèces animaux qui sont menacées de disparaître de la planète. En effet, elle fait appel à l'éducation pour informer les gens sur les espèces en danger. Ces images peuvent être utilisées dans les écoles ou dans les musées pour défendre l'importance des animaux en danger, ce qui m'intéresse beacoup. 
 ### Lien 2
 Expliquer pourquoi vous avez choisi ce lien.
-### [Addiction téléphone] (https://www.thequint.com/entertainment/hot-on-web/dystopian-tv-web-series) 
-L'oeuvre *Addiction téléphone* m'interpelle beaucoup, parce que c'oeuvre 
+### [Addiction téléphone] (https://www.buzzwebzine.fr/life-smartphone-une-video-trash-sur-laddiction-du-siecle/#google_vignette) 
+L'oeuvre *Addiction téléphone* m'interpelle beaucoup, parce que c'est une oeuvre interactive qui vise les gens accros à l'utilisation excessive des téléphones. En effet, elle essaye de nous mettre en evidence les effets négatifs de l'addiction aux cellulaires. Lancez des messages forts aux gens de notre generation est quelque qui m'intérrese.  
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
 
