@@ -3,10 +3,10 @@
 
 ### Présentation
 Parlez de vous. 
-J'ai 19 ans, je suis d'origine libanais
+J'ai 19 ans, je suis d'origine libanais, j'aime passer mon temps à écouter de la musique et j'ai un petit chien de la race Beagle. Je travaille en tant que sécurité dans plusieurs évènements spéciaux. 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
-
+Mes intérêts en multimédia sont
 ### Emplois qui vous intéressent
 Nommez deux emplois.
 
