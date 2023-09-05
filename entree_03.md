@@ -9,12 +9,14 @@ Parlez de vos intérêts en multimédia.
 Mes intérêts en multimédia sont
 ### Emplois qui vous intéressent
 Nommez deux emplois.
-
+-Intégrateur Web
+-Monteur vidéo ou audio
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
-
+  Dans cinq ans, je me vois faire des vidéos, des publicités pour les gens connus. 
 ### Projets
 Expliquez un ou des projets que vous aimeriez faire. 
+J'aimerais voyager dans plusieurs pays et réaliser des vidéos en même temps pour faire découvrir les gens le bon et le mauvais côté d'un pays. Faire des documentaires et des vlogs. 
