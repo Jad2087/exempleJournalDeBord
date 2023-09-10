@@ -9,15 +9,15 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 ### Lien 1 
 Expliquer pourquoi vous avez choisi ce lien. 
 ### [Aimal Instinct] (https://www.bangkokpost.com/life/arts-and-entertainment/612036/animal-instinct) 
-L'oeuvre *Animal instinct* m'adresse beacoup, car c'est une illustration visuelle des espèces animaux qui sont menacées de disparaître de la planète. En effet, elle fait appel à l'éducation pour informer les gens sur les espèces en danger. Ces images peuvent être utilisées dans les écoles ou dans les musées pour défendre l'importance des animaux en danger, ce qui m'intéresse beacoup. 
+L'oeuvre *Animal instinct* m'adresse beacoup, car c'est une illustration visuelle qui lance un message fort aux spectateurs. En effet, elle fait appel à l'éducation pour informer les gens sur les espèces en danger. Ces images peuvent être utilisées dans les écoles ou dans les musées pour défendre l'importance des animaux en danger, ce qui m'intéresse beaucoup. 
 ### Lien 2
 Expliquer pourquoi vous avez choisi ce lien.
 ### [Addiction téléphone] (https://www.buzzwebzine.fr/life-smartphone-une-video-trash-sur-laddiction-du-siecle/#google_vignette) 
-L'oeuvre *Addiction téléphone* m'interpelle beaucoup, parce que c'est une oeuvre interactive qui vise les gens accros à l'utilisation excessive des téléphones. En effet, elle essaye de nous mettre en évidence les effets négatifs de l'addiction aux cellulaires. Lancez des messages forts aux gens de notre generation est quelque chose qui m'intérrese.  
+L'oeuvre *Addiction téléphone* m'interpelle beaucoup, parce que c'est une oeuvre interactive qui averti les gens accros à l'utilisation des téléphones. En effet, elle essaye de nous mettre en évidence les effets négatifs de l'addiction aux cellulaires. Faire comprendre les gens et les donner le danger de l'accro est quelque chose qui m'intérrese.  
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
 ###  [Obésité] (https://www.futura-sciences.com/sante/dossiers/medecine-prevenir-obesite-devient-urgence-243/page/2/) 
-L'oeuvre m'adresse beaucoup, parce que c'est une oeuvre qui peut aider à visualiser la gravité de l'obésité. Elle peut choquer les gens, les amener à se remettre en question et à penser aux maladies que l'obésité peut amener. 
+L'oeuvre m'adresse beaucoup, parce que c'est une oeuvre qui peut aider à visualiser la gravité de l'obésité. Elle peut choquer les gens et les amener à se remettre en question. En effet, elle aide à explorer la diversité des expériences humaines et à encourager les gens à adopter les bonnes habitudes de vie. Ce qui m'intéresse.
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
 ### [Violence] (https://www.artmajeur.com/alain-chauvet/fr/artworks/8580589/variante) 
