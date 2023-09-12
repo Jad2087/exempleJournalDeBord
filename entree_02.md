@@ -17,11 +17,12 @@ L'oeuvre *Addiction téléphone* m'interpelle beaucoup, parce que c'est une oeuv
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
 ###  [Obésité] (https://www.futura-sciences.com/sante/dossiers/medecine-prevenir-obesite-devient-urgence-243/page/2/) 
-L'oeuvre m'adresse beaucoup, parce que c'est une oeuvre qui peut aider à visualiser la gravité de l'obésité. Elle peut choquer les gens et les amener à se remettre en question. En effet, elle aide à explorer la diversité des expériences humaines et à encourager les gens à adopter les bonnes habitudes de vie. Ce qui m'intéresse.
+L'oeuvre *Obésité* m'adresse beaucoup, parce que c'est une oeuvre qui peut aider à visualiser la gravité de l'obésité. Elle peut choquer les gens et les amener à se remettre en question. En effet, elle aide à explorer la diversité des expériences humaines et à encourager les gens à adopter les bonnes habitudes de vie. Ce qui m'intéresse.
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
-### (https://www.slave2point0.com/2017/03/22/20-oeuvres-street-art-denonciation-engagement-messages-politiques/) 
-Cette oeuvre me laisse réfléchir, parce que c'est un art qui montre que peut importe ta religion, les gens doivent se respecter. En effet, elle aide les gens à réfléchir sur les ressemblances et les différences entre les religions. Partager ses croyances et explorer l'histoire religieuse des gens sont des choses qui m'attire beaucoup. 
+### [Religion] (https://www.slave2point0.com/2017/03/22/20-oeuvres-street-art-denonciation-engagement-messages-politiques/) 
+Cette oeuvre *Religion* me laisse réfléchir, parce que c'est un art qui montre que peut importe ta religion, les gens doivent se respecter. En effet, elle aide les gens à réfléchir sur les ressemblances et les différences entre les religions. Partager ses croyances et explorer l'histoire religieuse des gens sont des choses qui m'attire beaucoup. 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
-
+### [Violence] (https://humannationalityvn.blogspot.com/2020/01/more-work-needed-to-protect-children.html) 
+L'oeuvre *Violence* m'interpelle, parce que c'est un art qui peut chercher à évoquer les émotions fortes chez les gens. En effet, elle peut encourager les gens à lutter contre la violence pour soutenir les victimes. Transmettre des messages de paix pour mettre fin à la violence et s'exprimer mon point de vue sur la violence sont deux choses quo m'instéresse.
