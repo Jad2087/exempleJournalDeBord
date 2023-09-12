@@ -16,7 +16,6 @@ Nommez deux emplois.
 -Monteur vidéo ou audio
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
-
 Entreprise: Sid Lee. L'artiste qui m'identifie est  
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
