@@ -17,7 +17,7 @@ Nommez deux emplois.
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
 
-Entreprise: Sid Lee. L'artiste qui m'identifie est 
+Entreprise: Sid Lee. L'artiste qui m'identifie est Rambo, car je me sens très courageux et fort. Quand j'étais au Mexique, une personne m'avais dis que je lui ressemblais à cause de mon regard. (J'avais 15 ans) . 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
 
