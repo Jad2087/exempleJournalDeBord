@@ -11,10 +11,12 @@ La conférence m'a plu, parce que j'ai trouvé cela intéressant, à savoir ce q
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que les idées étaient claires et concise?
 
 J'ai trouvé les idées claires et concise. Elle expliquait bien les idées.
+
 ### Structure de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développement était logique?
 
 J'ai trouvé le développement logique, puisqu'elle parlait de sa vie, puis elle expliquait les choses qu'on pouvait faire. 
+
 ### Qualité visuelle (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
 
