@@ -28,9 +28,9 @@ Quelle présentation avez-vous préféré et pourquoi?
 ### Entre le cours 1 et aujourd'hui, quelles découvertes as-tu faites sur le domaine du multimédia? 
 J'ai découvert que le domaine du multimédia est un cours qui montre les options qu'on a dans le programme de l'intégration multimédia. J'ai aimmé cela et cela m'a réfléchir pour mon avenir.
 ### As-tu découvert un nouveau métier qui pourrait t'intéresser? 
-Pas enocore, il y a plusieurs options intéressant.
+Pas enocore, il y a plusieurs options intéressants.
 ### As-tu découvert un nouvel artiste qui t'a inspiré? 
-
+Oui, j'ai découvert un nouvel artiste qui m'a inspiré. Son nom est Saul Bass un graphiste. J'aime beacoup le desjgn qu'il fait comme les logos et les titres des films.
 ### Pour quel type d'entreprise préférerais-tu travailler? 
 Il n'a pas vraiment d'entreprises qui m'intéresse, j'aimerais travaillé à mon compte. 
 ### Est-ce qu'un des domaines du multimédia t'intéresse plus que les autres? 
