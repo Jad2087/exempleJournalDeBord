@@ -26,13 +26,14 @@ Quelle présentation avez-vous préféré et pourquoi?
 ## Écris un retour sur ta session (1 à 2 lignes par question)
 
 ### Entre le cours 1 et aujourd'hui, quelles découvertes as-tu faites sur le domaine du multimédia? 
-
+J'ai découvert que le domaine du multimédia est un cours qui montre les options qu'on a dans le programme de l'intégration multimédia. J'ai aimmé cela et cela m'a réfléchir pour mon avenir.
 ### As-tu découvert un nouveau métier qui pourrait t'intéresser? 
-
+Pas enocore, il y a plusieurs options intéressant.
 ### As-tu découvert un nouvel artiste qui t'a inspiré? 
 
 ### Pour quel type d'entreprise préférerais-tu travailler? 
-
+Il n'a pas vraiment d'entreprises qui m'intéresse, j'aimerais travaillé à mon compte. 
 ### Est-ce qu'un des domaines du multimédia t'intéresse plus que les autres? 
-
+Oui, un des dmoaines du multimédia m'intéresse plus que les autres. 
 ### Est-ce que tu as préféré une sortie ou une conférence?
+J'ai préféré une conférence, car j'ai appris plusieurs choses et pendant les présentations, elles étaient gentilles.
