@@ -16,9 +16,11 @@ Pour gérer mon temps lors de la présentation, j'ai dû prendre mon temps à ex
 ### Outils et ressources
 Quels outils et ressources avez-vous utilisés pour la préparation de votre présentation?
 
+J'ai utilisé Google, Youtube et Reddit 
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant la présentation?
 
+Les diffcultés que j'ai rencontré pendant la présentation sont de bien articulé les mots envers les étudiants et d'être à l'aise, puisque faire une présentation devant des gens n'est pas mon point fort. 
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi?
 
